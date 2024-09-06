@@ -16,4 +16,5 @@ You can click the Preview link to take a look at your changes.
  thats me for rest of life 
  i going for what i have promised then to see someone. you may know. 
  my questions are pending till  next time 
+ less issues financialy have a scar on face from that injury and that scar gets me good money to survive 
  
