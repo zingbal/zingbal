@@ -1,4 +1,5 @@
- we can try that i may ask 4 questions and they will b my only questions forever
+try to contant me cap u just disappear m joining a course to learn i guess i was runnung fast nyways m still here. get me any online classes if thetre is any il pay 
+we can try that i may ask 4 questions and they will b my only questions forever
 - 👋 Hi, I’m @zingbal balbal   
 - 👀 I’m interested in ... learn to live as all past learnings went down hill with one incident
 - 🌱 I’m currently learning ... technology has always clicked me  was a professional athlete and may millioner 2 years ago.
